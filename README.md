@@ -1,0 +1,2 @@
+# MCK-IS-ROUTER
+Hello Mr END MCK-LINK MAKE MAKE this is modom ROUTER
